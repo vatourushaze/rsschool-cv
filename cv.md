@@ -25,3 +25,17 @@ So far my first and only job was **Guide for foreign tourists** [ 01/07/2019 –
   to scripts
 - Collected tickets and fees from each individual prior to start of tour.
 - Successfully maintain clean, valid driver's license and access to reliable transportation.
+
+### Language skills
+
+Mother tongue(s): **Georgian**
+
+Other language(s):
+
+**Russian:
+LISTENING C1 READING C1 WRITING B2
+SPOKEN PRODUCTION C1 SPOKEN INTERACTION C1**
+
+**English:
+LISTENING B2 READING B2 WRITING B2
+SPOKEN PRODUCTION B2 SPOKEN INTERACTION B2**
